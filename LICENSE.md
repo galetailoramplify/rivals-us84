@@ -1,4 +1,4 @@
-#  
+#  no-ban rivals Scripts offers the most advanced rivals Script, with fly and aimbot. Perfect for dominating any match.
 
 
 
